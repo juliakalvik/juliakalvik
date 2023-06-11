@@ -11,7 +11,7 @@ I really enjoy design and creating prototypes as well as the programming.
 
 ⚡ Fun fact: my favorite TV show is The Office, and I have never worked a place without being part of the party planning committe🥳. 
 
-📫 You can reach me through my LinkedIn profile, Instagram or by e-mail:
-LinkedIn: https://www.linkedin.com/in/julia-kalvik-94b278191
-Instagram: https://www.instagram.com/juliakalvik/
+📫 You can reach me through my LinkedIn profile, Instagram or by e-mail: <br>
+LinkedIn: https://www.linkedin.com/in/julia-kalvik-94b278191 <br>
+Instagram: https://www.instagram.com/juliakalvik/ <br>
 E-mail: julia@kalvikfoto.com 
